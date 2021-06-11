@@ -1,2 +1,0 @@
-# AraujoPerezNarcisa-Examen
- Examen Interciclo
